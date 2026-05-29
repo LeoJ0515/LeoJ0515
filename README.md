@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on ... nothing
 - 🌱 I’m currently learning ... a lot of things
-- 👯 I’m looking to collaborate on ... future partner
+- 👯 I’m looking to an IT Internship 
 - 🤔 I’m looking for help with ... financial problem
 - 💬 Ask me about ... the gender and i will answer male
 - 📫 How to reach me: ... email me jyunleong030515@gmail.com
